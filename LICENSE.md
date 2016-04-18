@@ -1,0 +1,1 @@
+The design of BB-8 is a trademark of Disney and Lucasfilm. These files are of my own design, and are being made available for fans who want to build their own BB-8 for personal use. I will not be held liable for trademark or copyright violations by people who think it's a good idea to try to make money off of Disney and Lucasfilm's hard work.
